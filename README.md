@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Ciara Carroll - @ciaracappuccino * @ciaracarroll1
 - 👀 I’m interested in ... design for digital wellbeing 
 - 🌱 I’m currently learning ... UX Management: Strategy and Tactics
-- 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... Tweet @ciaracappuccino or send me a messaege on Linkedin @ciaracarroll1 
 
 <!---
