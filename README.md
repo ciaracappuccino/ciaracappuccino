@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ciara Carroll - @ciaracappuccino * @ciaracarroll1
-- 👀 I’m interested in ... design for digital wellbeing 
+- 👀 I’m interested in ... design for digital wellbeing in [gaming] [igaming] [healthcare]
 - 🌱 I’m currently learning ... UX Management: Strategy and Tactics
 - 📫 How to reach me ... Tweet @ciaracappuccino or send me a messaege on Linkedin @ciaracarroll1 
 
